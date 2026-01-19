@@ -19,4 +19,4 @@ This repository highlights my ability to analyze information and support busines
 - Business analysis notes
 
 ## Purpose
-To demonstrate analytical and organizational skills useful for virtual assistance and admin work.usiness analysis for sales and  - d
+To demonstrate analytical and organizational skills useful for virtual assistance and admin work.usiness analysis for sales and admin work
